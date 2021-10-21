@@ -1,1 +1,2 @@
 yu-za-touroku
+kinouC
